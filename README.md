@@ -1,2 +1,2 @@
 # bhavanabambal
-I am bhavana bambal from section c
+I am bhavana bambal.
